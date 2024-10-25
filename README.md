@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **bhattn245@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1MQL7Y_WCsm_eI3Hln9NfCFY7Tko14iAFSbotXJ_lDfc/edit](https://docs.google.com/document/d/1MQL7Y_WCsm_eI3Hln9NfCFY7Tko14iAFSbotXJ_lDfc/edit)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1MQL7Y_WCsm_eI3Hln9NfCFY7Tko14iAFSbotXJ_lDfc/edit](https://docs.google.com/document/d/1kRW9z4KX_paymHc-tv1AazyTWYTZY9jogKrx8Pzh-Qc/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
